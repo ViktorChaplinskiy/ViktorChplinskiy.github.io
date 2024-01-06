@@ -1,1 +1,0 @@
-# ViktorChplinskiy.github.io
